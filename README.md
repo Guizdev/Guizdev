@@ -6,4 +6,4 @@ You can click the Preview link to take a look at your changes.
 --->
 ### Oi, eu me chamo *Gui*
 
-![](https://wallpapers-clan.com/pfp/naruto-gif/)
+![](https://wallpapers-clan.com/pfp/naruto-gif/
